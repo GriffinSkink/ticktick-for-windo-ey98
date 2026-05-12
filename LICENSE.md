@@ -1,4 +1,4 @@
-# 
+# updated TickTick for Windows Plugin | search-functionality + time-tracking offers the most advanced TickTick for Windows plugin, with search-functionality and time-tracking. Ideal
 
 
 
